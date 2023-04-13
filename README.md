@@ -15,7 +15,7 @@ Estoy en la comisión del turno noche, los días Martes y Jueves de 18hs a 22hs.
 ## Mis perfiles
 - **Discord** JisatsuSCAF#2753.
 - [Steam](https://steamcommunity.com/id/JisatsuSCAF/).
-- [Instagram](https://discord.gg/dkTB8wff).
+- [Instagram](https://www.instagram.com/jisatsuscaf/).
 
 ## Estoy cursando este cuatrimestre
 - Programación de objetos 1.
